@@ -1,4 +1,4 @@
-# 
+# Automático Avast Premium Security extensiones para Mac OS | Principal Avast Premium Security extensiones para PC Windows. Con soporte multi-dispositivo y protección contra ransomware — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
